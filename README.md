@@ -1,4 +1,3 @@
-Here’s a revised version with a more free-spirited and conversational tone:
 
 DriverPass Project Reflection
 
